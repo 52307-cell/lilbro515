@@ -4,3 +4,4 @@ https://maddoxcloud.com
 
 https://app.3daimtrainer.com/
 
+https://moony-dhx.pages.dev/MoonPieLauncher
