@@ -1,1 +1,1 @@
-https://historyclass.bdyoutube.com
+https://vivid-learn50.learninghub.fit/start
