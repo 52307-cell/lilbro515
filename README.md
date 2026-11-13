@@ -1,9 +1,1 @@
-https://vote1.arch.lol
-https://vote2.arch.lol
-https://vote3.arch.lol
-https://vote4.arch.lol
-https://vote5.arch.lol
-https://vote6.arch.lol
-https://vote7.arch.lol
-https://vote8.arch.lol
-https://vote9.arch.lol
+https://historyclass.bdyoutube.com
